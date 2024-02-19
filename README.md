@@ -11,7 +11,7 @@ You can interact with me anytime, although i might put some DNI's sometimes.
 
 I’m interested in drawing and is sometimes making quotes stories and journals in my free time. 
 I don't exactly know what else i should put here hehe.  
-- 
+
 
 I'm currently learning perspectives and other general languages like russian and chinese, please don't talk a lot with this because I'm just a beginner!
 -   			      Please DNI! 🙏
@@ -19,7 +19,7 @@ Please do not interact if you are a r@'c1st, p3d0¶hi/e, z0/ph1/e, pick me's, pe
 I also do not like toilet jokes like p/3e and someone taking a dump! 
 Please do not also make jokes about relatives or any d3@d / unalive that i am known with. 
 Also do NOT interact if you make r@¶e jokes and unnecessary words or sentences that make me uncomfy. 
--
+
 Although, as i said you can see me on ponytown as chongyun, xingqiu, venti and etc! I hope we can meet and interact soon! 
 ♡ . Hello! My name is yunnie, you can usually see me in pony town, 
 
@@ -90,4 +90,4 @@ My fandoms are Omori, genshin, HI3, HSR, MIA, MHA, Haikyuu, FNAF, KCC and etc! p
 I love chongyun so much! And xingqiu too. I'm also quite an intoject and will kinda copy some of your way of interacting! 
 I do NOT copy, i also do NOT use tutorial skins!! 
 If you have any more questions and clarifications about me, please find me by using my github! I'll be glad to know you <3
--
+
