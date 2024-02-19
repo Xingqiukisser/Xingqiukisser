@@ -48,16 +48,3 @@ I love chongyun so much! And xingqiu too. I'm also quite an intoject and will ki
 I do NOT copy, i also do NOT use tutorial skins!! 
 
 If you have any more questions and clarifications about me, please find me by using my github! I'll be glad to know you <3
-
--
-
-
-If you have toubles with my pronouns, please use he/him or they/them! I am a transfem and i am quite treated bad in the past, so i would be happy and delighted
-If you would treat me the same as i treat you! 
-
-                     FUN FACTS!!! 
-My fandoms are Omori, genshin, HI3, HSR, MIA, MHA, Haikyuu, FNAF, KCC and etc! please ask me if your interested! 
-I love chongyun so much! And xingqiu too. I'm also quite an intoject and will kinda copy some of your way of interacting! 
-I do NOT copy, i also do NOT use tutorial skins!! 
-If you have any more questions and clarifications about me, please find me by using my github! I'll be glad to know you <3
-
