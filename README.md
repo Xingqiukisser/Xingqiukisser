@@ -47,4 +47,6 @@ Kinda clingy and get very jealous a lot.  I'm sorry but thats just how i am.
 
 I am a libra! I was born on october 13th. I'm quite sometimes cold and Will sometimes joke around with d3@th or su1c1¢e like me dy'!ng or something like that :9 
 
-If you have any more questions and clarifications about me, please find me by using my github! I'll be glad to know you <3
+If you have any more questions and clarifications about me, please find me by using my github! Or use my guestbook! I'll be glad to know you <3
+
+http://ice-yunn1e.123guestbook.com/
