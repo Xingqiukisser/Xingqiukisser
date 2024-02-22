@@ -18,10 +18,13 @@ I don't exactly know what else i should put here hehe.
 I'm currently learning perspectives and other general languages like russian and chinese, please don't talk a lot with this because I'm just a beginner!
 
 -   		  	      Please DNI! 🙏
--   		  	  
+    		  	  
 - Please do not interact if you are a r@'c1st, p3d0¶hi/e, z0/ph1/e, pick me's, people who spread fake information and a gossiper.
+
 -I also do not like toilet jokes like p/3e and someone taking a dump! 
+
 -Please do not also make jokes about relatives or any d3@d / unalive that i am known with. 
+
 -Also do NOT interact if you make r@¶e jokes and unnecessary words or sentences that make me uncomfy. 
 
 Although, as i said you can see me on ponytown as chongyun, xingqiu, venti and etc! I hope we can meet and interact soon! 
@@ -47,6 +50,6 @@ Kinda clingy and get very jealous a lot.  I'm sorry but thats just how i am.
 
 I am a libra! I was born on october 13th. I'm quite sometimes cold and Will sometimes joke around with d3@th or su1c1¢e like me dy'!ng or something like that :9 
 
-If you have any more questions and clarifications about me, please find me by using my github! Or use my guestbook! I'll be glad to know you <3
+The guestbook isnt working  😓
 
-http://ice-yunn1e.123guestbook.com/
+If you have any more questions and clarifications about me, please find me by using my github! I'll be glad to know you <3
