@@ -47,8 +47,9 @@ I'll be very verryy, mean sometimes kinda like i was influenced by someone , but
 Usually i forgive a lot and is easy to manipulate, although i am quite sad that peopke use me because of this and will end up leaving me alone like a peck of dust in the wind! I also say sorry or apologize a ton! It also became a habit and some people find it absolutely annoying...
 
 Kinda clingy and get very jealous a lot.  I'm sorry but thats just how i am.  
+I have abandonment issues, clinging onto someone even tho they don't need me anymore, also am gullable XP
 
-I am a libra! I was born on october 13th. I'm quite sometimes cold and Will sometimes joke around with d3@th or su1c1¢e like me dy'!ng or something like that :9 
+I am a libra! I was born on october 13th. I'm quite sometimes cold and Will sometimes joke around with d3@th or su1c1¢e or something like that :9 
 
 The guestbook isnt working  😓
 
