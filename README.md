@@ -1,5 +1,5 @@
 ♡ . Hello! My name is yunnie, you can usually see me in pony town, 
-ofcourse i don't mind cuddling and hiding you too. 
+ofcourse i don't mind cuddling!! 
 
 You can interact with me anytime, although i might put some DNI's sometimes.
 
@@ -19,7 +19,7 @@ I'm currently learning perspectives and other general languages like russian and
 
 -   		  	      Please DNI! 🙏
     		  	  
-- Please do not interact if you are a r@'c1st, p3d0¶hi/e, z0/ph1/e, pick me's, people who spread fake information and a gossiper.
+- Please do not interact if you are a r@'c1st, p3d0¶hi/e, z0/ph1/e, pick me's, people who spread fake information, pr0shipp3rs and a gossiper.
 
 -I also do not like toilet jokes like p/3e and someone taking a dump! 
 
@@ -38,9 +38,9 @@ My fandoms are Omori, genshin, HI3, HSR, MIA, MHA, Haikyuu, FNAF, KCC and etc! p
 
 I love chongyun so much! And xingqiu too. I'm also quite an intoject and will kinda copy some of your way of interacting! 
 
-I do NOT copy, i also do NOT use tutorial skins!! 
+I do NOT copy, i also do NOT use tutorial skins!! If i do, i credit !! 
 
-I'm mega sensitive, andi would be happy if you can watch / think of what you want to say before speaking! 
+I'm mega sensitive, and i would be happy if you can watch / think of what you want to say before speaking! 
 
 I'll be very verryy, mean sometimes kinda like i was influenced by someone , but please forgive me. . 
 
@@ -50,7 +50,5 @@ Kinda clingy and get very jealous a lot.  I'm sorry but thats just how i am.
 I have abandonment issues, clinging onto someone even tho they don't need me anymore, also am gullable XP
 
 I am a libra! I was born on october 13th. I'm quite sometimes cold and Will sometimes joke around with d3@th or su1c1¢e or something like that :9 
-
-The guestbook isnt working  😓
 
 If you have any more questions and clarifications about me, please find me by using my github! I'll be glad to know you <3
