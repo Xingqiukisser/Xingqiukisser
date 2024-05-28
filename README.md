@@ -41,7 +41,7 @@ I love chongyun so much! And xingqiu too. I'm also quite an introject and will k
 
 I do NOT copy, i also do NOT use tutorial skins!! If i do, i credit !! 
 
-I am an INFP ! >0<
+I am an INFP, and a cupioromantic ! 
 
 I'm mega sensitive, and i would be happy if you can watch / think of what you want to say before speaking! 
 
