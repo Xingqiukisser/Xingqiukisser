@@ -5,8 +5,8 @@
 A pleasure to meet you! You probably checked out my github on this certain app / Website called ponytown! Yes, yes. I'm usually seen in that game so if you do see my github on my profile, do not fret, for i shall not bite like an animal, not unless my name shows so. 
 、
 
+![Anime Characters](https://github.com/user-attachments/assets/258e36b4-b3c2-4787-a142-26018e5e29f6)
 
-![OGC](https://github.com/Xingqiukisser/Xingqiukisser/assets/132155605/589f8cee-1780-4113-8904-c5a69b1da665)
 、
 ❄ My DNI's [Do not interact] Are quite simple ! 🦈
 
