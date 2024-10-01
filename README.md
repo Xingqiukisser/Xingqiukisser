@@ -10,7 +10,7 @@ A pleasure to meet you! You probably checked out my github on this certain app /
 、
 ❄ My DNI's [Do not interact] Are quite simple ! 🦈
 
-・ Pedophiles, zoophiles, homophobes, who irls rapists, wierd people( who has a toxic personality), copycats (Includes friends and online family copycats! ^_^), racism, people who support one of the dni's putten here, and other more 🌨 
+・ dni criteria, copycats and etc. lazy to explain forward.
 
 🌊 My INTs are technically anyone ! Feel free to Cuddle and hide behind me <3 
 
