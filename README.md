@@ -1,4 +1,5 @@
-![@nunnunnnnnnnu on twt](https://github.com/Xingqiukisser/Xingqiukisser/assets/132155605/c75aaccb-65cb-4585-8016-4a0254848c6c) 
+<img alt="o" src="https://github.com/user-attachments/assets/696c3e57-4c51-4aa5-a1ac-173748b83df3" />
 
 
- ❄    ‎꒰ᐢ. .ᐢ꒱       𓂁 ♒︎  𝙉𝙀KA𝙈A 𝙄𝙎 A𝙏 𝙏𝙃𝙀 𝙎NO𝙒𝙔 𝘽𝙀AC𝙃  ᨳ﹅ .
+
+ ❄    ‎꒰ᐢ. .ᐢ꒱       𓂁 ♒︎ destined to part..?  ᨳ﹅ .
