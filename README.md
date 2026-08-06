@@ -4,6 +4,10 @@
 <p></p>
 
 ❄    ‎꒰ᐢ. .ᐢ꒱       𓂁 ♒︎ destined to part..?  ᨳ﹅ .
+<div Align="center">
+
+ 🎐꒷꒦ [ᦓꪻ᥅ꪖ᭙](https://casyuce.straw.page/) ⋆˚꩜｡ [ꪖꪻꪖ](https://casyuce.atabook.org/) ⋆˚꩜｡ [ρ᥅ꪀᦓ](https://en.pronouns.page/@%F0%9D%99%94U%F0%9D%99%89%F0%9D%91%B51E) ꒦꒷🎐
+
 <div></div>
 <img width="99" height="56" alt="tumblr_fb66307a94a36d9e9b86ce3a32722b55_84dc5eab_100" src="https://github.com/user-attachments/assets/4f19badc-cdd0-4c09-aabb-a00be0c031d6" />
 <img width="99" height="56" alt="tumblr_465b550ef320181a4dfb627e212a7ab8_ff4590ad_100" src="https://github.com/user-attachments/assets/6c7e7187-8d57-471d-956f-83e4f005cde1" />
