@@ -26,7 +26,7 @@
  <div>
  </div>
  
-[ᦓꫝꪖ᥅ꫀᦔ ᥅ꫀꪀꪻ᥅ꪗ](https://rentry.co/Vyun)
+[᥅ꫀꪀꪻ᥅ꪗ](https://rentry.co/Vyun)
  
  <div></div>
  <img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/4e7d6343-4033-473d-846d-7de33bb17392" />
