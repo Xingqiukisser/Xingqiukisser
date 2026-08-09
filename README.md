@@ -83,4 +83,4 @@
  
 <img width="400" height="140" alt="image" src="https://github.com/user-attachments/assets/c7d82069-826d-4d89-850b-139ecc31a666" />
 
-@pt-hall-of-media 's Ponytown xingqiu!
+@pt-hall-of-media 's and pt-walk-of-fame 's Ponytown xingqiu!
