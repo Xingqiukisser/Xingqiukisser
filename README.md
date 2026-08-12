@@ -6,7 +6,7 @@
 ❄    ‎꒰ᐢ. .ᐢ꒱       𓂁 ♒︎ destined to part..?  ᨳ﹅ .
 <div Align="center">
 
- 🎐꒷꒦ [ᦓꪻ᥅ꪖ᭙](https://casyuce.straw.page/) ⋆˚꩜｡ [ꪖꪻꪖ](https://casyuce.atabook.org/) ｡꩜˚⋆ [ρ᥅ꪀᦓ](https://en.pronouns.page/@%F0%9D%99%94U%F0%9D%99%89%F0%9D%91%B51E) ꒦꒷🎐
+ 🎐꒷꒦ [ᦓꪻ᥅ꪖ᭙](https://casyuce.straw.page/) ⋆˚꩜｡ [ꪖꪻꪖ](https://casyuce.atabook.org/) ｡꩜˚⋆ [ρ᥅ꪀᦓ(wip)](https://en.pronouns.page/@%F0%9D%99%94U%F0%9D%99%89%F0%9D%91%B51E) ꒦꒷🎐
  <div ALIGN="CENTER"></div>
  
 ಇ [ᧁꪊꪀᦓ.ꪶꪮꪶ](https://guns.lol/pzcat) ಇ
