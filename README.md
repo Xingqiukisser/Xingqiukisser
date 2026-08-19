@@ -83,4 +83,4 @@
  
 <img width="400" height="140" alt="image" src="https://github.com/user-attachments/assets/c7d82069-826d-4d89-850b-139ecc31a666" />
 
- Ty! - @pt-hall-of-media 's, @ponytowncosplayers , and @pt-walk-of-fame 's Ponytown xingqiu!
+ Ty! - @pt-hall-of-media 's, @ponytowncosplayers , @pt-walk-of-fame 's , and @cosplaytown 's Ponytown xingqiu!
