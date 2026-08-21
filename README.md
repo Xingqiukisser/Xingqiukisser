@@ -36,12 +36,11 @@
 <img alt="image" src="https://github.com/user-attachments/assets/ece63b7f-229d-4943-a950-abc062cf15f9" />
 <div></div>
 
- <img width="600" height="300" alt="image" src="https://github.com/user-attachments/assets/b2dfabeb-a5de-4dfe-9ef0-aa4d92269684" />
+ 
 <div></div>
  ‎ 
  <div></div>
  <img width="99" height="65" alt="image" src="https://github.com/user-attachments/assets/42f46260-71eb-4525-8e7c-6254e72347c6" />
-
 <div>
 ‎ 
  <div></div>
