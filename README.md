@@ -24,8 +24,16 @@ $\color{skyblue}{\text{ ❄    ‎꒰ᐢ. .ᐢ꒱       𓂁 ♒︎ destined to 
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/cd3e0936-8928-4497-98b1-b400051a6071" />
 <img width="99" height="56" alt="tumblr_82a4a84b4460045c6fde6f9c8f76776d_3a107210_100" src="https://github.com/user-attachments/assets/1eeab02e-cd3c-498f-b22b-2cf6b1739741" />
 <img width="99" height="56" alt="tumblr_e720081aad12c130c8b35b9a84d9c263_b7409874_100" src="https://github.com/user-attachments/assets/7e140936-8c13-4621-af29-9b31b0568ec8" />
+<img width="99" height="56" alt="tumblr_fc306a2af92fc245cdd5772b88c3a3e3_d968c543_100" src="https://github.com/user-attachments/assets/8f0a251d-16d0-423c-9e26-f6075a71c72d" />
+<img width="99" height="56" alt="tumblr_336728fca881c0962ca382118a16e156_df853253_100" src="https://github.com/user-attachments/assets/de1d5525-d8b8-4d94-869c-66c3336db478" />
+
 <div>
- ‎ 
+ ‎ <img width="101" height="57" alt="tumblr_5fede75ab7cbe2ebc0fd8621d0ed822a_8a5affb8_250" src="https://github.com/user-attachments/assets/e5618721-2834-461d-b42b-fe3bdd4d29fe" />
+<img width="99" height="56" alt="tumblr_a420bb5faeb12e90cf51acf2131878aa_035c84d6_100" src="https://github.com/user-attachments/assets/37a485e3-1dcb-440c-a6aa-33923832aea0" />
+<img width="110" height="60" alt="tumblr_fa2367f189b91e49a339113898c23eed_a7db1d59_250" src="https://github.com/user-attachments/assets/673139cc-49c7-4fb9-b35a-5233c6e8d8c6" />
+<img width="110" height="60" alt="tumblr_c67bcdc45815c0c0143a71ecb6a15f66_609d5f87_250" src="https://github.com/user-attachments/assets/c325a55a-c38a-498e-9bc6-b8dfa7e6d22b" />
+<img width="110" height="60" alt="tumblr_6d5cb62c90152bb55a4b09bcc7196649_4182b6e0_250" src="https://github.com/user-attachments/assets/06967074-3850-4293-8bd6-121b1a074fc9" />
+
 </div>
 ‎ 
  <div>
