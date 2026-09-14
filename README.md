@@ -1,24 +1,29 @@
 <img width="1052" height="592" alt="image" src="https://github.com/user-attachments/assets/c9657c52-6f50-4d5e-8b5c-b13092f3b1d8" />
 <div></div>
- <div Align="center"> <img width="480" height="480" alt="image" src="https://github.com/user-attachments/assets/aefae7e0-c683-4125-92aa-04bd1558268f" />
- 
+<div Align= "center">
+<table>
+  <tr>
+    <td><img src="https://github.com/user-attachments/assets/57833324-0c5f-4cf7-835c-cbd358431bfd" "width="100"></td>
+   <td> $\color{skyblue}{\text{"I love My boyfriend Xingqiu." Like really much.....yknow."}}$ </td>
+</td>
+
+</table>
+
 <div></div>
 <p></p>
 
-❄    ‎꒰ᐢ. .ᐢ꒱       𓂁 ♒︎ destined to part..?  ᨳ﹅ .
+$\color{skyblue}{\text{ ❄    ‎꒰ᐢ. .ᐢ꒱       𓂁 ♒︎ destined to part..?  ᨳ﹅ .}}$
 <div Align="center">
 
- 🎐꒷꒦ [ᦓꪻ᥅ꪖ᭙](https://casyuce.straw.page/) ⋆˚꩜｡ [ꪖꪻꪖ](https://casyuce.atabook.org/) ｡꩜˚⋆ [ρ᥅ꪀᦓ(wip)](https://en.pronouns.page/@%F0%9D%99%94U%F0%9D%99%89%F0%9D%91%B51E) ꒦꒷🎐
+🎐꒷꒦ [ᦓꪻ᥅ꪖ᭙](https://xingqiukisser.straw.page/) ⋆˚꩜｡ [ꪖꪻꪖ](https://casyuce.atabook.org/) ｡꩜˚⋆ [ρ᥅ꪀᦓ(wip)](https://en.pronouns.page/@%F0%9D%99%94U%F0%9D%99%89%F0%9D%91%B51E) ꒦꒷🎐
  <div ALIGN="CENTER"></div>
  
 ಇ [ᧁꪊꪀᦓ.ꪶꪮꪶ](https://guns.lol/pzcat) ಇ
 
 </div> 
-<img width="99" height="56" alt="tumblr_fb66307a94a36d9e9b86ce3a32722b55_84dc5eab_100" src="https://github.com/user-attachments/assets/4f19badc-cdd0-4c09-aabb-a00be0c031d6" />
-<img width="99" height="56" alt="tumblr_465b550ef320181a4dfb627e212a7ab8_ff4590ad_100" src="https://github.com/user-attachments/assets/6c7e7187-8d57-471d-956f-83e4f005cde1" />
-<img width="99" height="56" alt="tumblr_9e5af2e199eac5cc188a1151528c8fb5_c1b3f727_100" src="https://github.com/user-attachments/assets/733e8fa2-e498-45ac-91ea-451cc5117620" />
-<img width="99" height="56" alt="tumblr_465b550ef320181a4dfb627e212a7ab8_ff4590ad_100" src="https://github.com/user-attachments/assets/ff1d972e-23b3-447c-b2d3-92eb0134d031" />
-<img width="99" height="56" alt="tumblr_fb66307a94a36d9e9b86ce3a32722b55_84dc5eab_100" src="https://github.com/user-attachments/assets/4f19badc-cdd0-4c09-aabb-a00be0c031d6" />
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/cd3e0936-8928-4497-98b1-b400051a6071" />
+<img width="99" height="56" alt="tumblr_82a4a84b4460045c6fde6f9c8f76776d_3a107210_100" src="https://github.com/user-attachments/assets/1eeab02e-cd3c-498f-b22b-2cf6b1739741" />
+<img width="99" height="56" alt="tumblr_e720081aad12c130c8b35b9a84d9c263_b7409874_100" src="https://github.com/user-attachments/assets/7e140936-8c13-4621-af29-9b31b0568ec8" />
 <div>
  ‎ 
 </div>
@@ -26,8 +31,17 @@
  <div>
  </div>
  
-[Second straw !<33 ](https://xingqiukisser.straw.page/?fbclid=IwY2xjawUBLVJwZG9mA2V4dG4DYWVtAjExAHNydGMGYXBwX2lkATAAAR73jti0XHXdBHDLYhPg3_2b-FY78F-upk_-ur7Z-ugfp-0XfByMEGboRejZmw_aem_fppGEK1oihxbOq3wK7jTrQ)
- 
+<br>
+<html>
+ <p align="left">
+  <img src="https://readme-typing-svg.herokuapp.com?font=Cormorant+Garamond&size=20&duration=3500&pause=1200&color=3e637d&center=true&vCenter=true&width=700&lines=oh,+dear+chongyun...;+I+love+you+so;Do+you+love+me+back?" />
+</p>
+
+ <br>
+<html>
+ <p align="right">
+  <img src="https://readme-typing-svg.herokuapp.com?font=Cormorant+Garamond&size=20&duration=3500&pause=1200&color=b6e1ff&center=true&vCenter=true&width=700&lines=yes+my+Spouse?;+do+you+really..?;+Of+course+I+do.+" />
+</p>
  <div></div>
  
 <div></div>
