@@ -1,5 +1,5 @@
-<div align="center">
-<img alt="image" src="https://github.com/user-attachments/assets/e5f3a6dd-d328-4317-882c-fdf514d34885" />
+ <div Align="center"> <img width="480" height="480" alt="image" src="https://github.com/user-attachments/assets/7918898e-05ee-426d-a79f-d550e5d2aea2" /> 
+
 
 <p></p>
 
@@ -18,52 +18,32 @@
 <img width="99" height="56" alt="tumblr_465b550ef320181a4dfb627e212a7ab8_ff4590ad_100" src="https://github.com/user-attachments/assets/ff1d972e-23b3-447c-b2d3-92eb0134d031" />
 <img width="99" height="56" alt="tumblr_fb66307a94a36d9e9b86ce3a32722b55_84dc5eab_100" src="https://github.com/user-attachments/assets/4f19badc-cdd0-4c09-aabb-a00be0c031d6" />
 <div>
-<img width=250 height=200 alt="image" src="https://github.com/user-attachments/assets/14c0a28b-11d6-458e-a1cc-8cbecfba4021" />
-<div>
  ‎ 
 </div>
 ‎ 
  <div>
  </div>
  
-[Second straw !](https://xingqiukisser.straw.page/?fbclid=IwY2xjawUBLVJwZG9mA2V4dG4DYWVtAjExAHNydGMGYXBwX2lkATAAAR73jti0XHXdBHDLYhPg3_2b-FY78F-upk_-ur7Z-ugfp-0XfByMEGboRejZmw_aem_fppGEK1oihxbOq3wK7jTrQ)
+[Second straw !<33 ](https://xingqiukisser.straw.page/?fbclid=IwY2xjawUBLVJwZG9mA2V4dG4DYWVtAjExAHNydGMGYXBwX2lkATAAAR73jti0XHXdBHDLYhPg3_2b-FY78F-upk_-ur7Z-ugfp-0XfByMEGboRejZmw_aem_fppGEK1oihxbOq3wK7jTrQ)
  
  <div></div>
- <img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/4e7d6343-4033-473d-846d-7de33bb17392" />
-
-
+ 
 <div></div>
-<img alt="image" src="https://github.com/user-attachments/assets/ece63b7f-229d-4943-a950-abc062cf15f9" />
+
 <div></div>
 
  
 <div></div>
  ‎ 
  <div></div>
- <img width="99" height="65" alt="image" src="https://github.com/user-attachments/assets/42f46260-71eb-4525-8e7c-6254e72347c6" />
 <div>
 ‎ 
- <div></div>
-
-‎ <img width="735" height="414" alt="image" src="https://github.com/user-attachments/assets/931132a3-891b-4f1e-9219-5a23fd9136b9" />
-<div>
- ‎ 
-</div>
-‎ 
-<div>
- ‎ 
-</div>
-‎ 
-</div>
- ‎ 
-</div>
-
-</div>
- ‎  
-</div>
+<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/0f53a4f6-83b0-43a6-90e2-ea65970bbf08" />
 
 <div>
- ‎ 
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/5e7aa1d1-dc2a-4d02-9775-6678bc82f995" /> <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/262580f0-16fd-4fc6-a14c-a7f165a8cb6d" />
+
+
 </div>
 ‎ 
 </div> 
