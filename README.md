@@ -69,7 +69,8 @@ $\color{skyblue}{\text{ ❄    ‎꒰ᐢ. .ᐢ꒱       𓂁 ♒︎ destined to 
 <div> </div>
   <div> </div>
  !!!<img width="540" height="23" alt="image" src="https://github.com/user-attachments/assets/c1a208eb-941b-45bb-bb23-1d07072896b3" />!!!
-
+<div> <img width="480" height="270" alt="aDWD2c" src="https://github.com/user-attachments/assets/8212f0e5-6388-433f-aea0-362267800406" />
+</div>
 <div align="center">
 
 <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/5eda9b9b-192a-4051-9e9e-77515d4abdf2" />
