@@ -1,6 +1,7 @@
+<img width="1052" height="592" alt="image" src="https://github.com/user-attachments/assets/c9657c52-6f50-4d5e-8b5c-b13092f3b1d8" />
+<div></div>
  <div Align="center"> <img width="480" height="480" alt="image" src="https://github.com/user-attachments/assets/7918898e-05ee-426d-a79f-d550e5d2aea2" /> 
-
-
+<div></div>
 <p></p>
 
 ❄    ‎꒰ᐢ. .ᐢ꒱       𓂁 ♒︎ destined to part..?  ᨳ﹅ .
@@ -43,23 +44,12 @@
 <div>
 <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/5e7aa1d1-dc2a-4d02-9775-6678bc82f995" /> <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/262580f0-16fd-4fc6-a14c-a7f165a8cb6d" />
 
-
-</div>
-‎ 
-</div> 
-
-</div>
- ‎ 
-</div>
-‎ 
-</div>
-
-</div>
+ !!!<img width="540" height="23" alt="image" src="https://github.com/user-attachments/assets/c1a208eb-941b-45bb-bb23-1d07072896b3" />!!!
 
 <div align="center">
 
 <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/5eda9b9b-192a-4051-9e9e-77515d4abdf2" />
- 
+
 <img width="400" height="140" alt="image" src="https://github.com/user-attachments/assets/c7d82069-826d-4d89-850b-139ecc31a666" />
 
  Ty! - [@pt-hall-of-media's](https://github.com/pt-hall-of-media), [@ponytowncosplayers](https://github.com/ponytowncosplayers) , [@pt-walk-of-fame's](https://github.com/pt-walk-of-fame) , and [@cosplaytown's](https://github.com/cosplaytown) Ponytown xingqiu!
