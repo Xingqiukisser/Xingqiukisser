@@ -15,7 +15,7 @@
 $\color{skyblue}{\text{ ❄    ‎꒰ᐢ. .ᐢ꒱       𓂁 ♒︎ destined to part..?  ᨳ﹅ .}}$
 <div Align="center">
 
-🎐꒷꒦ [ᦓꪻ᥅ꪖ᭙](https://xingqiukisser.straw.page/) ⋆˚꩜｡ [ꪖꪻꪖ](https://casyuce.atabook.org/) ｡꩜˚⋆ [ρ᥅ꪀᦓ(wip)](https://en.pronouns.page/@%F0%9D%99%94U%F0%9D%99%89%F0%9D%91%B51E) ꒦꒷🎐
+🎐꒷꒦ [ᦓꪻ᥅ꪖ᭙](https://xingqiukisser.straw.page/) ⋆˚꩜｡ [ꪖꪻꪖ](https://casyuce.atabook.org/) ｡꩜˚⋆ ꒦꒷🎐
  <div ALIGN="CENTER"></div>
  
 ಇ [ᧁꪊꪀᦓ.ꪶꪮꪶ](https://guns.lol/pzcat) ಇ
@@ -58,7 +58,8 @@ $\color{skyblue}{\text{ ❄    ‎꒰ᐢ. .ᐢ꒱       𓂁 ♒︎ destined to 
 
 <div>
 <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/5e7aa1d1-dc2a-4d02-9775-6678bc82f995" /> <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/262580f0-16fd-4fc6-a14c-a7f165a8cb6d" />
-
+<div> </div>
+  <div> </div>
  !!!<img width="540" height="23" alt="image" src="https://github.com/user-attachments/assets/c1a208eb-941b-45bb-bb23-1d07072896b3" />!!!
 
 <div align="center">
