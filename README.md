@@ -77,4 +77,4 @@ $\color{skyblue}{\text{ ❄    ‎꒰ᐢ. .ᐢ꒱       𓂁 ♒︎ destined to 
 
 <img width="400" height="140" alt="image" src="https://github.com/user-attachments/assets/c7d82069-826d-4d89-850b-139ecc31a666" />
 
- Ty! - [@pt-hall-of-media's](https://github.com/pt-hall-of-media), [@ponytowncosplayers](https://github.com/ponytowncosplayers) , [@pt-walk-of-fame's](https://github.com/pt-walk-of-fame) , and [@cosplaytown's](https://github.com/cosplaytown) Ponytown xingqiu!
+ Special THANK YOU! - [@pt-hall-of-media's](https://github.com/pt-hall-of-media), [@ponytowncosplayers](https://github.com/ponytowncosplayers) , [@pt-walk-of-fame's](https://github.com/pt-walk-of-fame) , [@cosplaytown's](https://github.com/cosplaytown) And [@Pawtowns](https://github.com/paw-town) Ponytown xingqiu!
